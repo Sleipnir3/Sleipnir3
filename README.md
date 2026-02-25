@@ -1,7 +1,7 @@
 
 ### Hi there 👋
 
-Welcome to **Sleipnir3`s space**.
+Welcome to **Sleipnir3`s space**. You can call me **"Errial"**.
 
 📫 How to reach me ?
 
